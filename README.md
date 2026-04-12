@@ -1,4 +1,4 @@
-# Cão-Solidário
+# SOS Dog
 
 Descrição do Projeto
 
