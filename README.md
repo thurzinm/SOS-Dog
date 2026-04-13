@@ -14,7 +14,7 @@ Membros da Equipe
 
 •Pedro Aguiar Santos Vianna Gouvea
 
-•Ronan
+•Ronan Porto Machado
 
 Problema
 
